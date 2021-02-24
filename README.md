@@ -13,4 +13,6 @@ YouTube : https://www.youtube.com/channel/UCdACR7TBZzwMqx8CHWVAcHQ
 
 Discord : https://discord.gg/Gtq46B2q
 
+Store : https://berikhtiar.com/miqdstore.dbc
+
 Support : https://sociabuzz.com/miqdadabdillah/support
